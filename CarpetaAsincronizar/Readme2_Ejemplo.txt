@@ -1,1 +1,2 @@
-Tiene que aparecer en el equipo
+Tiene que aparecer en el equipo.
+Y ya ha aparecido!!!!!!!!!!!!
